@@ -9,3 +9,4 @@ It's sooooo bad.
 Truuuuueeee.
 [This scene is all you need to see](https://youtu.be/2tLf1JO5bvE?si=2QDGrhVqXgGoOl3N)
 
+Would have to agree. Hard to follow and just a bunch of cheesy lines. 
